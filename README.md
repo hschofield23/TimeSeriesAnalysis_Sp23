@@ -24,6 +24,9 @@ yu.hai@duke.edu <br>
 Office hours: TBD
 
 
+Student: Hannah Schofield
+
+
 **Syllabus** <br>
 
 Please check the syllabus and more information at our class website: <br>
